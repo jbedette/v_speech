@@ -18,14 +18,13 @@ but what has makes him truly spectacular is not his sparkling sense of humor, op
 no victor is the absolute most solid as a goddamn rock reliable dude I've ever met.
 he's like a metronome. an enthusiastic metronome. my boy is amped on everything and god is it infectious. 
 
+we played jv soccer together and we were terrible, but goddamn did he love it. 
+we played lacrosse together, and we weren't *baaaad*, but we didn't win a whole bunch. and goddamn did he love it.  
 we used to spend high school spring break at sugarloaf, and we would just shred for an entire week. 
 couldn't have done without victor prying me out of bed 2 hours after he had already eaten several breakfasts with my parents. 
-he'd get me up and he'd get me psyched every single day.
-then we'd drink a whole gallon of milk and crush a pack of doublestuffs in the basement. 
-if you are a 13 year old boy, i highly recommend just eating the whole whole oreo package.
-sophmore year of college at uvm, victor, without fail would pass out at the crack of 9pm and be up ready to go at 7.
-He started ballroom dancing, and goddamn did he love it. 
-
+six days in barely capable of walking, he pulled us up and out there and goddamn did we love it. 
+then afterwards we'd drink a whole gallon of milk and crush a pack of doublestuffs in the basement. 
+if you are a 13 year old boy, i highly recommend just eating the whole oreo package, its your right as an american.
 
 he was there for everything, absolutely everything. 
 my first night in jail. thankfully only night in jail.
