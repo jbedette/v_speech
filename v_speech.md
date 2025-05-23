@@ -1,4 +1,3 @@
-
 my first memory of victor is bates sports camp
 it was the summer of 2000
 victor had the absolute roundest head i had ever seen and he and nate were in my camp squad for the first time
@@ -46,7 +45,9 @@ Rachel, you are the first girl that victor has ever been serious about.
 A few years ago he mentioned you for the first time when we were taking on the phone, and i immediately knew that this was different. 
 It wasn't the normal way that you tell your buddy you're dating someone.
 the way he talked about you just seemed to carry this weight, like there was a certain permanence about it that I hadn't heard before.
-After meeting you, I knew this was coming. 
+After meeting you, I knew this was coming because the first time i met you, you constantly heckled me. 
+I don’t remember what it was about, but just the tone, the *cadence* of your heckling let me know you were a perfect fit for victor, who deserves to heckled constantly.
+And i hope, in the spirit of holy matrimony, he heckles you, in sickness and in health about every time you have lost a challenge and subsequently got a tattoo commemorating victor's triumph.
 what a good match, you guys rule.
 
 And so rachel, I present to you the best, funniest, sweetest, most reliable dude I know. 
