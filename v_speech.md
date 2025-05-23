@@ -2,11 +2,9 @@ my first memory of victor is bates sports camp
 it was the summer of 2000
 victor had the absolute roundest head i had ever seen and he and nate were in my camp squad for the first time
 I was a fairly quiet boy and victor and nate were not. 
-i was going to be switching schools from st. joes to webster for 6th grade and victor went there
-I was gonna be friends with this dude. 
+i was going to be switching schools from st. joes to webster for 6th grade and victor went there and I was gonna be friends with this dude. 
 we played all the sports and i was definitely 100% better than victor at all of them and that is totally true, this is my speech and no one is allowed to doubt this.
-victor is now better than me at every sport. 
-i mean, look at em.
+now its more of a tossup.
 but moving on. 
 
 but summer camp ends and the school year rolls around.
